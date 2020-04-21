@@ -13,6 +13,8 @@
 
 ## 21 de Abril
 
+### Matematicas
+
 * Página 144 de su libro de matemáticas así como esta hay que resolverla ahí mismo en su libro
 * En la 145, nos pide trabajar con fichas azules y rojas, cómo quizá en casa no tengamos las fichas puedes realizarlas de papel y ellos las pueden colorear y así podemos realizar éste trabajo.
     * Así cómo contestar las preguntas de abajo
