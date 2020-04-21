@@ -10,5 +10,5 @@
 
 ## Transmisiones en vivo
 
-* [Retransmisión](https://www.youtube.com/watch?v=IVi6ySdYWL0&feature=youtu.be)
+* [Retransmisión](https://www.youtube.com/channel/UC_KUp7kSGFCaSKYVqv2qNMQ)
 * [Retransmisión2](https://tv.unam.mx/en-vivo/)
