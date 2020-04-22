@@ -114,6 +114,55 @@ Convirtiendo la casa en una galería de arte.
     * Nudo (aparición del conflicto): ¿qué problema se plantea?
     * Desenlace (solución del conflicto): ¿qué pasa para que la historia termine?
 
+### GEOGRAFÍA
+
+#### Contribuyamos a mejorar el suelo, el agua y el aire
+
+1. [¿Es real el cambio climático?](https://youtu.be/weIBPwFuYwA)
+
+    * ¿Cuáles son las señales de calentamiento global?
+    * ¿Identificas en tu comunidad algunas consecuencias del calentamiento global? ¿Cuáles?
+    * Para ti, ¿qué significa un “cambio de mentalidad” en relación con el calentamiento global?
+    * Genera una pregunta o más si lo deseas.
+
+2. [Cuidado del agua](https://youtu.be/C6WQ7uY5W7o)
+
+    ¿Te gusto el video? Si tu respuesta es sí ¿Qué fue lo que te gusto?
+    ¿Cómo obtienen el agua de uso común en tu casa?
+    ¿Qué medidas puedes implementar a partir de hoy para ahorrar agua?
+    ¿Cómo harías para dar a conocer a tu comunidad lo que hoy aprendiste?
+
+3. [Lectura](https://libros.conaliteg.gob.mx/P4GEA.htm)
+
+#### Lo que obtenemos de la tierra, los mares, los bosques y el ganado
+
+1. [Que aprendimos](https://youtu.be/euxTqNJKdcU)
+
+* Preguntas:
+    * ¿Qué te gustó del video?
+    * ¿Cuál es la diferencia entre pesca y acuicultura?
+    * Anteriormente, ¿cómo pescaban los mexicanos?
+    * ¿Cuáles son las principales especies acuícolas que se cultivan en México?
+    * En tu comunidad, ¿se practica alguna de estas actividades
+
+2. [Los 10 cultivos más representativos de México](https://youtu.be/Ul2LZYLa8q4)
+
+* Preguntas:
+    * ¿Cuáles son los 10 cultivos representativos de México?
+    * ¿A qué se refieren cuando se dice que la situación geográfica de México es perfecta para la agricultura?
+    * ¿Algunos de estos productos se cultivan en tu comunidad? Investígalo.
+    * ¿A qué sector económico corresponde esta actividad?
+    * ¿Qué entidad federativa es el principal productor de fresa en México?
+
+3. [México, Líder en Producción de Alimentos](https://youtu.be/M6eT9jDY208)
+
+* Actividades:
+    * Haz un dibujo sobre la imagen que más te haya gustado.
+    * Escoge uno de los 10 cultivos más representativos de México: trigo, aguacate, caña de azúcar, nochebuena o cempasúchil, agave, fresa, chile verde, jitomate y maíz. Escribe por qué lo escogiste, si te gusta, si lo comes con frecuencia, cómo lo comes, cómo se llaman los platillos que lo integran, etc. Haz un dibujo que acompañe tu escrito.
+
+* Lecturas:
+    * [Lectura1](https://libros.conaliteg.gob.mx/P4GEA.htm)
+    
 ### Actividades Extra
 
 * Pregunta a tu abuelo o abuela o algún adulto mayor ¿Cuál es la canción “más viejita” que conocen?, tal vez alguna que cantaban cuando estaban de tu edad, ya sea de la escuela o que la hayan aprendido en casa. Pídeles que te la canten. Si es corta, escríbela en una hoja para que la puedes aprender y compartir después con otros niños.
