@@ -86,3 +86,34 @@ Convirtiendo la casa en una galería de arte.
     * ¿Qué era más caro en 1970, viajar en camión o en metro?
 
 **NOTA:** Siempre revisar el calendario de actividades anexo [actividades](CALENDARIO-CÁLCULO-TERCERO-ABRIL-2020.pdf)
+
+### LENGUA MATERNA
+
+1. ¿Por qué pasó?
+
+* Videos:
+    * [Video1](https://youtu.be/6fsFz5ensUs)
+    * [Video2](https://youtu.be/m61lTN_edpo)
+
+* Lecturas:
+    * [Lectura1](https://libros.conaliteg.gob.mx/P4ESA.htm)
+    * [Lectura2](https://libros.conaliteg.gob.mx/P3ESA.htm)
+
+* Preguntas:
+    * ¿Qué narración te gustó más, la de la tortuga o la de la sirena? ¿Por qué?
+    * ¿Qué es una narración?
+    * ¿Qué partes tiene una narración?
+    * ¿Cuál es el nudo de la narración del cuento de la sirena y cuál el de la tortuga?
+
+2. Escribe una narración, de preferencia sobre una leyenda; tal vez ya conozcas alguna o la puedes inventar.
+
+* Preguntas:
+    * ¿Quiénes son los personajes?
+    * ¿En dónde sucede la historia?
+    * Inicio (planteamiento): ¿qué sucede?, ¿a quién le sucede?
+    * Nudo (aparición del conflicto): ¿qué problema se plantea?
+    * Desenlace (solución del conflicto): ¿qué pasa para que la historia termine?
+
+### Actividades Extra
+
+* Pregunta a tu abuelo o abuela o algún adulto mayor ¿Cuál es la canción “más viejita” que conocen?, tal vez alguna que cantaban cuando estaban de tu edad, ya sea de la escuela o que la hayan aprendido en casa. Pídeles que te la canten. Si es corta, escríbela en una hoja para que la puedes aprender y compartir después con otros niños.

@@ -17,8 +17,8 @@
 
 * 1ro y 2do
 
-![Horario](HorarioPrimero.jpeg)
+![Horario](Images/HorarioPrimero.jpeg)
 
 * 3ro y 4to
 
-![Horario](HorarioTercero.jpeg)
+![Horario](Images/HorarioTercero.jpeg)
