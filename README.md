@@ -12,3 +12,13 @@
 
 * [Retransmisión](https://www.youtube.com/channel/UC_KUp7kSGFCaSKYVqv2qNMQ)
 * [Retransmisión2](https://tv.unam.mx/en-vivo/)
+
+## Programación
+
+* 1ro y 2do
+
+[Horario](HorarioPrimero.jpeg)
+
+* 3ro y 4to
+
+[Horario](HorarioTercero.jpeg)
