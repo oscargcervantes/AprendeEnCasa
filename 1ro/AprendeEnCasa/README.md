@@ -33,4 +33,4 @@
     * Vienen muy repetitivos los temas, otra vez mayúsculas y minúsculas. Las preguntas que están encerradas con azul también van en su cuaderno azul, no olviden poner fecha.
     * Por último hay que hacer un dictado en su cuaderno morado que contenga 10 palabras y 5 enunciado, denotando la mayúscula y minúscula (utilicen nombres propios, de cuidades, explicar cuando una oración inicia es con mayúscula y cuando termina es con punto, las palabras que lleven tilde hay que ponerlo, etc)
     
-    ![149](22AbrilPag148.jpeg)
+    ![149](22AbrilPag149.jpeg)
