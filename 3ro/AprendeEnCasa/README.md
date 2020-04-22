@@ -85,8 +85,6 @@ Convirtiendo la casa en una galería de arte.
     * ¿Qué producto es el que más te sorprendió que se podía comprar antes con cinco pesos?
     * ¿Qué era más caro en 1970, viajar en camión o en metro?
 
-**NOTA:** Siempre revisar el calendario de actividades anexo [actividades](CALENDARIO-CÁLCULO-TERCERO-ABRIL-2020.pdf)
-
 ### LENGUA MATERNA
 
 1. ¿Por qué pasó?
