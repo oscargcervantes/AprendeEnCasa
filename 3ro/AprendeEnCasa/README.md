@@ -78,7 +78,7 @@ Convirtiendo la casa en una galería de arte.
     * ¿Qué tenían de distinto las ferias de hace 100 años a las que hoy existen?
     * ¿Cómo se divertían los niños hace 100 años?
 
-3. [¿Qué te alcanzaba con $5 pesos en 1970 en México?](https://youtu.be/Xx09XBMfFbM)
+3. [¿Qué te alcanzaba con $5 pesos en 1970 en México?](https://www.youtube.com/watch?v=MV2EvghKYnE)
 
 * Preguntas:
     * ¿Qué puedes comprar hoy en día con cinco pesos?
