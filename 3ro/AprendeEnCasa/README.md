@@ -74,17 +74,15 @@ Convirtiendo la casa en una galería de arte.
 2. [¿Cómo se Divertía la Gente hace 100 años en México?](https://youtu.be/Xx09XBMfFbM)
 
 * Preguntas:
-    ¿Cuáles eran los eventos deportivos más comunes hace 100 años?
-    ¿Qué tenían de distinto las ferias de hace 100 años a las que hoy existen?
-    ¿Cómo se divertían los niños hace 100 años?
-
- 
+    * ¿Cuáles eran los eventos deportivos más comunes hace 100 años?
+    * ¿Qué tenían de distinto las ferias de hace 100 años a las que hoy existen?
+    * ¿Cómo se divertían los niños hace 100 años?
 
 3. [¿Qué te alcanzaba con $5 pesos en 1970 en México?](https://youtu.be/Xx09XBMfFbM)
 
 * Preguntas:
-    ¿Qué puedes comprar hoy en día con cinco pesos?
-    ¿Qué producto es el que más te sorprendió que se podía comprar antes con cinco pesos?
-    ¿Qué era más caro en 1970, viajar en camión o en metro?
+    * ¿Qué puedes comprar hoy en día con cinco pesos?
+    * ¿Qué producto es el que más te sorprendió que se podía comprar antes con cinco pesos?
+    * ¿Qué era más caro en 1970, viajar en camión o en metro?
 
 **NOTA:** Siempre revisar el calendario de actividades anexo [actividades](CALENDARIO-CÁLCULO-TERCERO-ABRIL-2020.pdf)
