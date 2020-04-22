@@ -58,4 +58,33 @@ Convirtiendo la casa en una galería de arte.
 
 * Libro de texto educación artística página 74 y 75 u 82 y 83 para saber más del tema
 
+## 21 de Abril
+
+### LA ENTIDAD DONDE VIVO
+
+1. [¿Cómo ha cambiado la vida en la Ciudad de México?](https://youtu.be/qUWBVXX6h6A)
+
+* Preguntas:
+    * ¿Te gusto el video?
+    * ¿Cuáles son los cambios más importantes que observas en el video que han sucedido en la Ciudad de México?
+    * ¿Qué cambios podrías mencionar que han sucedido en la comunidad o en la ciudad en la que vives a través del tiempo? Si vives en la ciudad de México piensa en otros cambios además de los que salen en el video.
+    * Tal vez tú has podido ver cambios en tu comunidad o ciudad, si no es así pide a tus familiares que te cuenten alguno y así podrás contestar la siguiente pregunta: ¿Qué cambios en tu comunidad o ciudad te han gustado?
+    * ¿Qué nuevos cambios propondrías?
+
+2. [¿Cómo se Divertía la Gente hace 100 años en México?](https://youtu.be/Xx09XBMfFbM)
+
+* Preguntas:
+    ¿Cuáles eran los eventos deportivos más comunes hace 100 años?
+    ¿Qué tenían de distinto las ferias de hace 100 años a las que hoy existen?
+    ¿Cómo se divertían los niños hace 100 años?
+
+ 
+
+3. [¿Qué te alcanzaba con $5 pesos en 1970 en México?](https://youtu.be/Xx09XBMfFbM)
+
+* Preguntas:
+    ¿Qué puedes comprar hoy en día con cinco pesos?
+    ¿Qué producto es el que más te sorprendió que se podía comprar antes con cinco pesos?
+    ¿Qué era más caro en 1970, viajar en camión o en metro?
+
 **NOTA:** Siempre revisar el calendario de actividades anexo [actividades](CALENDARIO-CÁLCULO-TERCERO-ABRIL-2020.pdf)
