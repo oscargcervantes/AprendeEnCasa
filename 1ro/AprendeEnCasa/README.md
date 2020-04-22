@@ -24,11 +24,11 @@
 ### Español
 
 * Lectura página 148
-    * ![148](22AbrilPag148.jpeg)
+    ![148](22AbrilPag148.jpeg)
     * Vamos a leer (si ellos pueden leer solos, estaría perfecto) ese pequeño cuento, seguir las indicaciones. 
     * Lo que está encerrado con rojo hay que hacerlo en el cuaderno porfavor
     
 * Lectura página 149
-    * ![149](22AbrilPag148.jpeg)
+    ![149](22AbrilPag148.jpeg)
     * Vienen muy repetitivos los temas, otra vez mayúsculas y minúsculas. Las preguntas que están encerradas con azul también van en su cuaderno azul, no olviden poner fecha.
     * Por último hay que hacer un dictado en su cuaderno morado que contenga 10 palabras y 5 enunciado, denotando la mayúscula y minúscula (utilicen nombres propios, de cuidades, explicar cuando una oración inicia es con mayúscula y cuando termina es con punto, las palabras que lleven tilde hay que ponerlo, etc)
