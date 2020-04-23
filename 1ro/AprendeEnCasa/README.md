@@ -34,3 +34,27 @@
     * Por último hay que hacer un dictado en su cuaderno morado que contenga 10 palabras y 5 enunciado, denotando la mayúscula y minúscula (utilicen nombres propios, de cuidades, explicar cuando una oración inicia es con mayúscula y cuando termina es con punto, las palabras que lleven tilde hay que ponerlo, etc)
     
     ![149](22AbrilPag149.jpeg)
+
+## 23 de Abril
+
+## Matemáticas
+
+* Página 152 de su guía de matemáticas.
+
+* Página 146 libro de  matemáticas
+    
+    * Utilizando las fichas que ya tenían las rojas y azules.. EN SU CUADERNO ROJO HAY QUE PONER FECHA Y HACER MÁS EJEMPLOS CÓMO LOS QUE ESTÁN ENCERRADOS.
+        
+        ![146](IMG-20200423-WA0001.jpg) 
+
+* Página 147
+    
+    * Hoy los vamos a poner a contar, puede ser ahí con integrantes de su familia.
+        
+        ![147](IMG-20200423-WA0002.jpg)
+
+* Página 148
+    
+    * Ejercicio en la parte de abajo vienen las indicaciones, dejemos que ellos las lean y nos digan que hay que hacer para ir reforzando comprensión lectora.
+        
+        ![148](IMG-20200423-WA0003.jpg)
