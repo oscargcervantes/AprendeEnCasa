@@ -10,7 +10,7 @@
 
 ## Material
 
-* [material](https://materialeducativo.org/)
+* [Material](https://materialeducativo.org/)
 
 ## Transmisiones en vivo
 
