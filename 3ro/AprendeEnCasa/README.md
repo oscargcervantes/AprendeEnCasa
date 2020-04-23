@@ -236,7 +236,7 @@ Convirtiendo la casa en una galería de arte.
 
 1. [¿Sabes que es la minería?](https://youtu.be/gU4apCYdC6E)
 
-La minería es una actividad económica primaria, ya que los minerales se extraen directamente de la naturaleza, de lugares llamados yacimientos que se encuentran al aire libre o en el subsuelo, a diferentes profundidades. Según su utilidad y sus características, los recursos mineros se clasifican en minerales metálicos, minerales no metálicos y energéticos.
+    La minería es una actividad económica primaria, ya que los minerales se extraen directamente de la naturaleza, de lugares llamados yacimientos que se encuentran al aire libre o en el subsuelo, a diferentes profundidades. Según su utilidad y sus características, los recursos mineros se clasifican en minerales metálicos, minerales no metálicos y energéticos.
 
 2. [Los Tesoros de mi país minerales](https://youtu.be/wp1immRM9x4)    
 
@@ -261,7 +261,7 @@ La minería es una actividad económica primaria, ya que los minerales se extrae
 
 5. Actividad adicional
 
-Como habrás aprendido, Zacatecas, Sonora, Chihuahua, Durango, entre otros, son estados mineros. Las actividades económicas influyen en la vida de las personas y en las condiciones de los lugares donde se realiza 
+    Como habrás aprendido, Zacatecas, Sonora, Chihuahua, Durango, entre otros, son estados mineros. Las actividades económicas influyen en la vida de las personas y en las condiciones de los lugares donde se realiza 
 
 * Preguntas:
     * ¿Cómo crees que ha influido la minería en estos estados? 
@@ -275,7 +275,7 @@ Como habrás aprendido, Zacatecas, Sonora, Chihuahua, Durango, entre otros, son 
 * Preguntas:
     * ¿Sabes qué partes de tu cuerpo son los que te permiten moverte?  
 
-    Los huesos y músculos de tu cuerpo además de permitirte caminar, correr, bailar y muchas acciones más, también le dan soporte y protegen a otros órganos de tu cuerpo.
+        Los huesos y músculos de tu cuerpo además de permitirte caminar, correr, bailar y muchas acciones más, también le dan soporte y protegen a otros órganos de tu cuerpo.
 
 2. [Sistema Locomotor](https://youtu.be/rKIMDP4BQMI)    
 
@@ -301,8 +301,8 @@ Como habrás aprendido, Zacatecas, Sonora, Chihuahua, Durango, entre otros, son 
 
 5. Actividades adicionales
 
-Si quieres practicar más sobre este tema, te invitamos a realizar la siguiente actividad
+    Si quieres practicar más sobre este tema, te invitamos a realizar la siguiente actividad
 
 * ¿Conoces el baile que se llama “Twist”? Este baile fue popular en la década de los 60’s del siglo pasado. Si nunca has oído hablar de él, investiga cómo se bailaba, ya sea en internet, libros o con personas que lo hayan bailado. 
-* ¿Qué parte del cuerpo es la que más se movía en este baile? Con ayuda de tu libro describe los huesoso músculos que se mueven más con el twist. Escribe tu descripción en una hoja y alguna otra información que hayas encontrado sobre este baile. Y si te gusta bailar, ¡baila una canción al ritmo de twist!Guarda tus trabajos en tu carpeta de experiencias para que, en cuanto sea posible, se las entregues a tu maestra o maestro 
+* ¿Qué parte del cuerpo es la que más se movía en este baile? Con ayuda de tu libro describe los huesoso músculos que se mueven más con el twist. Escribe tu descripción en una hoja y alguna otra información que hayas encontrado sobre este baile.
 
