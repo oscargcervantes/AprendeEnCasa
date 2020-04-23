@@ -199,11 +199,11 @@ Convirtiendo la casa en una galería de arte.
     * Si tienes cuerda, quién la salta más veces
     * En una hoja haz un cuadro como el siguiente para llevar el registro:
 
-    | Participante         | Hula Hula  | Cuerda           |
-    |----------------------|------------|------------------|
-    | Yo                   |            |                  |
-    | Papá                 |            |                  |
-    | Hermano              |            |                  |
+        | Participante         | Hula Hula  | Cuerda           |
+        |----------------------|------------|------------------|
+        | Yo                   |            |                  |
+        | Papá                 |            |                  |
+        | Hermano              |            |                  |
 
 ### LA ENTIDAD DONDE VIVO
 
